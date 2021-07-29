@@ -1,0 +1,2 @@
+- I´m Almar1502
+- Studying Industrial engineering in University of Iceland
